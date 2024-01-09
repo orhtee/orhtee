@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Tech
 - 🌱 I’m currently learning ... Data Science and AI
 - 💞️ I’m looking to collaborate on ... Data analytics
-- 📫 How to reach me ...
+- 📫 How to reach me ... https://www.linkedin.com/in/titilayomi-aramide-otepola-4a9998ab
 - 😄 Pronouns: ... Mrs
 - ⚡ Fun fact: ... Love singing and playing games
 
